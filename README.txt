@@ -1,1 +1,0 @@
-Foto 1.jpg
